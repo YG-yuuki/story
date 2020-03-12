@@ -1,3 +1,3 @@
 # story
-STOP, there's no story here
-for now
+Aight, writing this isn't easy
+for me at least
